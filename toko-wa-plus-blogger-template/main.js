@@ -13,7 +13,8 @@
     Terima kasih sudah menggunakan karya saya. :)
 
     Salam,
-    KangRian.NET
+    Kang Rian | Pelajar Visual
+    Instagram / Facebook @pelajar.visual
 
     Terakhir Diperbarui : 25/10/2024 @ 6:16 PM
 
